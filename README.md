@@ -1,0 +1,1 @@
+# -C-Users-SYAUKI-Downloads-kripto-krip-
